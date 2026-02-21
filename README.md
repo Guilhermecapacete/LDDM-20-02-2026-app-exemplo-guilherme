@@ -1,1 +1,0 @@
-# LDDM-20-02-2026-app-exemplo-guilherme
